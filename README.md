@@ -1,2 +1,0 @@
-# conectapsi
-Divulgação de psicólogos
